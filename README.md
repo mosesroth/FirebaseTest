@@ -1,3 +1,3 @@
-![Screenshot_20241212-162729](https://github.com/user-attachments/assets/ad2dcedf-a43e-41e3-ae54-39dcc60bddc5)
+![Screenshot_20241212-164245](https://github.com/user-attachments/assets/9737d131-5e5a-4764-8e0e-4b6cfa4b0b94)
 
-![Screenshot_20241212-164245](https://github.com/user-attachments/assets/b72f75e6-f214-4614-ab30-2e43a6465b1a)
+![Screenshot_20241212-162729](https://github.com/user-attachments/assets/e8b54367-5259-426d-90f9-50acabd3a074)
